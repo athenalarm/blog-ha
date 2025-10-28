@@ -4,7 +4,7 @@ date: 2025-10-24T21:00:00+08:00
 draft: false
 type: "posts"
 description: "Jagora mai cikakken bayani game da Athenalarm AS-9000 Series kwamitin sarrafa gargadi, wanda ya dace da tsaro na masana'antu, kasuwanci, da na gidaje. Koyi manyan fasaloli, fa'idodi, da ribar siyan kaya."
-keywords: ["burglar alarm control panel", "intrusion alarm control panel", "security alarm panel", "intruder alarm panel"]
+keywords: ["kwamitin sarrafa gargadi na masu sata", "kwamitin sarrafa gargadi na shiga ba bisa ka'ida ba", "kwamitin gargadi na tsaro", "kwamitin gargadi na masu shiga ba bisa ka'ida ba"]
 ---
 
 # Manyan Fa'idodin Athenalarm AS-9000 Series Kwamitin Sarrafa Gargadi na Masu Sata
