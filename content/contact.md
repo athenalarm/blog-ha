@@ -36,4 +36,10 @@ Kasance sabunta tare da sabbin kirkire-kirken tsaro, nazarin shari'o'i, da sabab
 
 ---
 
+### 🛡️ Ilimin Tsaro na Duniya
+
+**Athenalarm ƙwararren mai kera ne wanda ke raba ilimin ƙwararru akan samfuran ƙararrawa na ɓarayi da tsarin tsaro.** A matsayin wani ɓangare na alƙawarinmu ga al'ummar tsaro ta duniya, muna ba da ƙwarewar gida a cikin harsuna 71. Bincika tushen iliminmu na Turai, Afirka, Asiya, Amurka, da Oceania [**a nan**](https://athenalarm.com/burglar-alarm-manufacturer/athenalarm-global-blogs/).
+
+---
+
 > _Athenalarm — Ƙwararren Mai Kera Burglar Alarm & Masani a Hanyoyin Sadarwar Kula da Tsaro (Network Alarm Monitoring Solutions)._
